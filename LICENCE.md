@@ -1,0 +1,2 @@
+© Kawot 2026. All rights reserved.
+© Celalma 2026. All rights reserved.
